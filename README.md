@@ -1,0 +1,4 @@
+# idear
+#hkjhjjjjjjhjhjkjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
+dfdjkgjhkjhdg
+dghjkghkjhgkjfhkjhkjsfgkhjg
